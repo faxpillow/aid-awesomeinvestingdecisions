@@ -1,2 +1,3 @@
 # regrettableinvestingdecisions
-Regrettable Investing Decisions - HUMOR unrelated to any contextual repositories
+Regrettable Investing Decisions - unrelated to any contextual repositories etc
+
