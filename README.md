@@ -1,3 +1,3 @@
-# regrettableinvestingdecisions
-regrettable investing decisions - unrelated to any contextual repositories etc
+# awesomeinvestingdecisions
+awesome investing decisions - unrelated to any contextual repositories etc
 
