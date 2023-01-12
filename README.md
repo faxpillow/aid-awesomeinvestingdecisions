@@ -7,4 +7,4 @@ It does/did not look like that
 
 still wonder what is the best thing that has happened to anyone today 
 
-from has very much evidentially gone where no one else has gone repeatedly  
+from has very much often very little lol evidentially gone where no one else has gone repeatedly  
