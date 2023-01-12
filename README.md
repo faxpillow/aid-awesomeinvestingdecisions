@@ -3,4 +3,4 @@ Regrettable investing decisions - unrelated to any contextual repositories etc
 something sorry 4 the weird :)
 It does/did not look like that 
  
- also the background confettis gif is there hold on
+ also the background confettis gif is there i'll find why it isn't loading etc
